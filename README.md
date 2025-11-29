@@ -1,6 +1,7 @@
 # Improving-Workplace-Culture-Through-Awareness-Education
 I help organizations identify and address sexist and misogynistic behavior by raising awareness, educating teams, and promoting healthier communication. My goal is to support respectful, inclusive workplaces where everyone feels safe, valued, and empowered to contribute.
-Improving Workplace Culture Through Awareness & Education
+
+Wanna know more about Improving Workplace Culture Through Awareness & Education? Then read my README.md
 
 Hello, my name is Tara-Freia Hirschberger, and this README.md from my repository about Improving-Workplace-Culture-Through-Awareness-Education. It
 presents my work and services dedicated to fostering inclusive, respectful, and safe workplace environments.
