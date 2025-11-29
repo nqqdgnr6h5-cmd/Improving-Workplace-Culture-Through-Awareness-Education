@@ -3,7 +3,7 @@ I help organizations identify and address sexist and misogynistic behavior by ra
 
 Wanna know more about Improving Workplace Culture Through Awareness & Education? Then read my README.md
 
-Hello, my name is Tara-Freia Hirschberger, and this README.md from my repository about Improving-Workplace-Culture-Through-Awareness-Education. It
+Hello, my name is Tara-Freia Hirschberger, and this is my README.md from my repository about Improving-Workplace-Culture-Through-Awareness-Education. It
 presents my work and services dedicated to fostering inclusive, respectful, and safe workplace environments.
 
 My focus is on identifying patterns of sexist or misogynistic behavior within organizations and supporting individuals and teams in understanding the real impact of these behaviors. Many people are unaware of how their actions or language affect others, and my goal is to promote awareness, education, and positive behavioral change—never shame or punishment, only if you want to and pay extra, because then I would have to misuse you and this costs extra due to the fact that this is part of the work of a dominatrix and their work is usually very well paid.
