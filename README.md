@@ -40,6 +40,6 @@ Emotionally healthy
 
 By raising awareness and promoting accountability, we build teams that communicate better, work better, and care about each other.
 
-📬 Contact
+📬 Contact me,
 
-If you’re interested in collaborating or learning more, feel free to reach out.
+if you’re interested in collaborating or learning more, feel free to reach out.
